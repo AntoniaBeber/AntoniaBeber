@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about Web Archiving!
 - 📫 How to reach me: marianascimento.manp@gmail.com/ [Linkedin](www.linkedin.com/in/maria-antônia-nascimento-pinto-80a84b204)
 - ⚡ Fun fact:
-- 📜 Former Archivist
+- 📜 Former Archivist (2021-2023)
 - 🎵[Spotify](https://open.spotify.com/user/21eeqghu4mqv4e2y3c4anglga?si=feea576541ca4832)
 - 🎥[Letterboxd](https://boxd.it/1mE2b)
 
